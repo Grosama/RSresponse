@@ -1,12 +1,14 @@
-Tu as raison, je vais préciser ma pensée. Je ne commente pas les religions ici comme des croyances mais comme des pourvoyeurs de "Habitus" qui dépassent largement la sphère des croyants pour agir  en tant que logiciel inconscient ou religion civile dans tous les aspects de la société.
+Tu as raison, je vais préciser ma pensée. Je ne commente pas les religions ici comme des croyances, mais comme des pourvoyeurs d’Habitus qui dépassent largement la sphère des croyants pour agir en tant que logiciel inconscient ou religion civile dans **tous les aspects** de la société.
 
-Je ne cherche pas à réinventer une réflexion sociologique car je ne fais qu'inscrire mes hypothèses dans le sillage d'au moins deux sociologues du début du XXème :
-- Max Weber quand il écrit L'Ethique protestante et l'esprit capitaliste.
-- Fréderic Hoffet lorsqu'il écrit L'Impérialisme protestant.
+Je ne cherche pas à réinventer une réflexion sociologique, car je ne fais qu’inscrire mes hypothèses dans le sillage d’au moins deux sociologues du début du XXᵉ siècle :
 
-Mais il faut bien désigner le protestantisme que les deux ciblent dans leurs écrits, car tu as raison, le risque de généraliser serait bien trop grand. Les deux auteurs portent leurs analyses sur le calvinisme. Ce qui tombe bien pour nos propos ici car la London Missionary Society qui a été très proche de la monarchie merina sont eux même issus d'une branche du calvinisme qui est le congrégationalisme. La base théologique est la même et on peut dire qu'ils reposent sur 3 socles importants : 
-1. La souveraineté absolue de Dieu : Rien ne lui échappe, c'est lui le patron. L'Homme doit s'y soumettre sans réserves. On peut dire que c'est le point le moins intéressant.
-2. La centralité de l’Écriture et de la discipline de vie : la vie chrétienne doit être ascétique, disciplinée, réglée par une stricte éthique morale (travail, sobriété, rejet du luxe et du divertissement excessif). Règle déjà plus intéressante et on y reviendra quand on abordera Weber.
+- Max Weber, lorsqu’il écrit L’Éthique protestante et l’esprit du capitalisme.
+- Frédéric Hoffet, lorsqu’il écrit L’Impérialisme protestant.
+
+Mais il faut bien désigner le protestantisme que les deux ciblent dans leurs écrits, car tu as raison, le risque de généraliser serait bien trop grand. Les deux auteurs portent leurs analyses sur le calvinisme. Ce qui tombe bien pour nos propos ici, car la London Missionary Society, qui a été très proche de la monarchie merina, est elle-même issue d’une branche du calvinisme : le congrégationalisme. La base théologique est la même, et l’on peut dire qu’ils reposent sur trois socles importants :
+
+1. La souveraineté absolue de Dieu : rien ne lui échappe, c’est lui le patron. L’homme doit s’y soumettre sans réserve. On peut dire que c’est le point le moins intéressant.
+2. La centralité de l’Écriture et de la discipline de vie : la vie chrétienne doit être ascétique, disciplinée, réglée par une stricte éthique morale (travail, sobriété, rejet du luxe et du divertissement excessif). Règle déjà plus intéressante, et on y reviendra quand on abordera Weber.
 3. La prédestination : Dieu a, de toute éternité, choisi certains pour le salut (les élus) et d’autres pour la damnation. L’homme ne peut rien changer à ce décret. Règle tout aussi intéressante quand on abordera Hoffet.
 
 Max Weber cherche à comprendre comment l’éthique protestante a contribué à la formation de « l’esprit » du capitalisme moderne : l’idée qu’accumuler, investir, travailler avec méthode et ascèse devient une valeur en soi. Il considère que l’ascétisme protestant a joué un rôle clé dans la capitalisation et l’industrialisation de l’Allemagne, car il empêchait le bourgeois de se vautrer dans le luxe matériel et ostentatoire, le poussant ainsi à réinvestir continuellement son argent plutôt que de le laisser dormir. Le refus de l’ostentation est ici primordial.
