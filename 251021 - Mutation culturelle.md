@@ -1,7 +1,7 @@
 # A l'aune du Palaiocide
 
-**L’émergence de multiples mouvements populaires regroupés sous le label "Gen Z" (pour "Génération Z") appelle, à notre sens, une réflexion plus profonde sur leurs racines que ne le laissent supposer les revendications qu’ils expriment.**  
-Car au-delà des slogans et des causes, se dessine un phénomène d’une nature plus brutale : un **désir de palaiocide**.
+**L’émergence de multiples mouvements populaires regroupés sous le label "Gen Z" (pour "Génération Z") appelle, à notre sens, une réflexion plus profonde sur leurs racines que ne le laissent supposer les revendications qu’ils expriment.** L’apparition quasi simultanée de mouvements **Gen Z** dans des contextes aussi éloignés que l’île Maurice et Madagascar attise d’autant plus la curiosité qu’ils diffèrent profondément par leur **structure sociale**, leur **niveau de développement** et leur **rapport à l’État**.
+Et au-delà des slogans et des causes, se dessine un phénomène d’une nature plus brutale : un **désir de palaiocide**.
 
 Quelques précisions s’imposent sur ce néologisme. _Palaios_ vient du grec ancien et désigne ce qui est _ancien, vieux ou hérité_. Nous ne vous ferons pas l’affront d’expliquer le suffixe _-cide_, issu du latin _caedere_ (_tuer, abattre_). Tout comme le _régicide_ désigne l’élimination du roi, le *palaiocide* serait donc le meurtre symbolique de l’Ordre Ancien. Nous pesons ici tout le poids du mot _Ordre_, car les événements dont nous sommes témoins touchent à bien plus qu’aux simples _régimes_ : c’est **la grammaire même du monde social** qui vacille, emportant avec elle les capacités de compréhension entre générations.
 
